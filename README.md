@@ -1,0 +1,1 @@
+# A-path-to-exploring-installation-macOS-tahole-EFI_ASUS_ROG-Z690_INTEL12400_RX6600
